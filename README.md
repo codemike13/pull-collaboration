@@ -17,3 +17,7 @@ Red
 Marvel for Iron Man DC for the BAT.
 
 5. How many CC's is your moto?
+
+1684 for a 850lb bike.
+
+6. how much wood could a wood chuck chuck if a wood chuck could chuck wood?

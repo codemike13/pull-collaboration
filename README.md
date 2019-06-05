@@ -29,4 +29,8 @@ THe woodchuck could chuck wood if wood could chuck from the woodchuck chucking.
 All bears have hair... but if they didnt, I would imagine they all would. have you googled a pic of a hairless bear? Terrifying.
 
 8. whats the top speed youve done on the road?
+   
+   186 mph my dude!
+
+9. Do you 420?
 

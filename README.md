@@ -9,3 +9,8 @@
 100% my dude.
 
 3. whats your favorite color?
+
+Red
+
+4. Marvel or DC?
+

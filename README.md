@@ -7,3 +7,5 @@
 2. Do you think those fluffy japanese pancakes are as good as they look?
 
 100% my dude.
+
+3. whats your favorite color?

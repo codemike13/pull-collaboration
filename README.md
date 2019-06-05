@@ -25,3 +25,8 @@ Marvel for Iron Man DC for the BAT.
 THe woodchuck could chuck wood if wood could chuck from the woodchuck chucking.
 
 7. How many bears would have hair if they care for stylish looks?
+
+All bears have hair... but if they didnt, I would imagine they all would. have you googled a pic of a hairless bear? Terrifying.
+
+8. whats the top speed youve done on the road?
+

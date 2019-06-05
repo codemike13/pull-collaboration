@@ -23,3 +23,5 @@ Marvel for Iron Man DC for the BAT.
 6. how much wood could a wood chuck chuck if a wood chuck could chuck wood?
    
 THe woodchuck could chuck wood if wood could chuck from the woodchuck chucking.
+
+7. How many bears would have hair if they care for stylish looks?
